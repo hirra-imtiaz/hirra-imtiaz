@@ -1,6 +1,6 @@
 - 👋 Hello, I’m Hirra
-- 👀 HR Enthusiast & Global Talent Sourcer (Tech & non-Tech) 
-- 💞️ Always sourcing top notch talent around the globe ...
+- 🌟 HR Enthusiast & Global Talent Sourcer (Tech & non-Tech) 
+- 🥳 Always sourcing top notch talent around the globe ...
 - 📧 aghaa.hirra@gmail.com
 - 💼 LinkedIn: https://www.linkedin.com/in/hirra-imtiaz-553a241b1/
 
